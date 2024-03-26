@@ -1,0 +1,1 @@
+# algoritmalarla_g-venli_a-_ge-idi_kontrol-
